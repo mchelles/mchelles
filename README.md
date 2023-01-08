@@ -1,6 +1,6 @@
 - 👋 hi, i’m @mchelles
 - 👀 i’m interested in... showering alison w/ all my love and affection 💗
-- 🌱 i’m currently... creating mario kart circuits w/ vector-valued functions 😮
+- 🌱 i’m currently... yeah :)
 - 📫 how to reach me? find me somewhere in this universe 🌃
 
 <!---
